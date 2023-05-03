@@ -3,8 +3,5 @@
 
 if u sell this u are a fucktard <3
 
-## Need Help!?
-
-in my discord i have valorant spoofer
-
-(https://discord.gg/badware)
+## Compiled Version
+Look Releases
